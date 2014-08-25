@@ -1,0 +1,1 @@
+See http://scalc.org/forum.php?mod=viewthread&tid=80&page=1#pid385 for details
